@@ -21,3 +21,6 @@ It's a "Hello World", what do you expect it to be?
 
 ------------------------------------------------
 
+I STILL HAVE NO IDEA WHAT I AM DOING
+PLEASE SEND HELP, AND BEER
+
